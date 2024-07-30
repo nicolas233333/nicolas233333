@@ -1,6 +1,6 @@
 - 👋  Olá, sou @nicolas233333
 - 👀  Estou interessado em aprender 
-- 🌱 Atualmente estou aprendendo estudando no 9° ano
+- 🌱 Atualmente estou aprendendo estudando no 1° ano
 - 💞️ Procuro colaborar em projetos
 - 📫 Como entrar em contato comigo nicolas.crone@escola.pr.gov.br
 <!---
